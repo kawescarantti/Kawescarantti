@@ -8,7 +8,7 @@
 - 🇪🇪 Grêmio
 - 📍🇧🇷 Santa Lucia/PR
 
-![](https://tenor.com/pt-BR/view/gremio-flag-gif-5052215)
+![](https://media.tenor.com/3rHaZNFIFZ8AAAAC/gremio-soccer.gif).
 
 <!--
 site do gif - https://tenor.com/pt-BR/
