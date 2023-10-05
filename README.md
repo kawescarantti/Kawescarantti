@@ -6,4 +6,10 @@
 - 🏫 Colégio Estadual Orlando Luiz Zamprônio
 - 🎂 Tenho 19 anos
 - 🇪🇪 Grêmio
--->
+- 📍🇧🇷 Santa Lucia/PR
+
+![](https://tenor.com/pt-BR/view/gremio-flag-gif-5052215)
+
+<!--
+site do gif - https://tenor.com/pt-BR/
+--!>
